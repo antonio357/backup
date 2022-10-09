@@ -1,1 +1,2 @@
-# backup
+- certificação TOIC BRIDGE  
+- certificação de intercâmbio da escola Canadence de Woodstck  
